@@ -1,2 +1,2 @@
-# tours
-we organise  tours all over Greece including  all neede services and accommodation
+# tours cruises  and accommodation
+we organize  tours all over Greece including  all needed services and accommodation
